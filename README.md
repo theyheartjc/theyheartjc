@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @theyheartjc or call me Tyler 
 - 👀 I’m interested in making horrible coding experiences.
 - 🌱 I’m currently learning how to code and make websites.
-- 💞️ I’m looking to collaborate on 
+- 💞️ I’m looking to collaborate on stuff that I haven't thought about yet.
 - 📫 How to reach me; theyheartjc@gmail.com (This is an extra email that I will barely check, but I will answer you.)
