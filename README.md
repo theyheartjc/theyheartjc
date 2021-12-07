@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @theyheartjc or call me Tyler 
+- 👋 Hi, I’m @theyheartjc or call me Sin.
 - 👀 I’m interested in making horrible coding experiences.
 - 🌱 I’m currently learning how to code and make websites.
 - 💞️ I’m looking to collaborate on stuff that I haven't thought about yet.
